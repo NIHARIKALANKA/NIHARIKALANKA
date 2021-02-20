@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently persuing my B.tech at VR Siddhartha Engineering College 
 - 🌱 I’m currently learning Java,Python,HTML
-- 💬 Ask me about the content related to the Html and other languages
+- 💬 Ask me about the content related to the Html and other languages and i am happy to help!!
 - 📫 How to reach me::email:niharikalanka1@gmail.com
 
 
